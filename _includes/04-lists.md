@@ -4,4 +4,4 @@
 * Anime
 * Friends
 * Cuddles
-  *Head pats 
+  * Head pats 

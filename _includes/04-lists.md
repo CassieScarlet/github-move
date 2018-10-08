@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+* Video Games :smile:
+  *SoD2
+* Pizza
+* Anime
+* Friends
+* Cuddles
+  *Head pats 
